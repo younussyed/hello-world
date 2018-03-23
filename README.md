@@ -1,3 +1,0 @@
-# datasciencecoursera
-nothing special
-hey there .....
